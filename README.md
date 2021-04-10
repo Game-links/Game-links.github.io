@@ -1,2 +1,2 @@
 # https://game-links.github.io
-Made by #Rishabh#9012
+Made by Rishabh#9012
